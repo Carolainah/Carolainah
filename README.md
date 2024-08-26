@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hola :3👋
+[<img url("![image](https://github.com/user-attachments/assets/5f419663-d21b-4082-aaa5-941a9f87a5ba)
+](https://i.pinimg.com/564x/f8/cf/1e/f8cf1e2e55316199d93356e87597070d.jpg)
 
 <!--
 **Carolainah/Carolainah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
